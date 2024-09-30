@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 <!--
 **NobodyTwo/NobodyTwo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![yori](https://github.com/user-attachments/assets/db12fa6a-7488-48b6-997c-0ef72c247aa4)
+
+# I'll probably work on this later. I'm busy eating pizza.
+
+Jacque, They/Them
+A bit of a freak. Very autistic.
+
+Figured I'd throw in some useful links for those who prefer to look at the big pretty image instead of the little links below my name.
+- https://rentry.co/NobodyOnePT
+- https://en.pronouns.page/@Jacque
