@@ -24,3 +24,8 @@ A bit of a freak. Very autistic.
 Figured I'd throw in some useful links for those who prefer to look at the big pretty image instead of the little links below my name.
 - https://rentry.co/NobodyOnePT
 - https://en.pronouns.page/@Jacque
+
+Also I'm a vtuber, maybe check out my streams sometime.
+- https://www.youtube.com/@StreamingHanako
+
+My discord @ is nobodyone but I won't accept friend requests without getting to know you first.
