@@ -28,8 +28,13 @@ Figured I'd throw in some useful links for those who prefer to look at the big p
 - https://rentry.co/NobodyOnePT
 - https://en.pronouns.page/@Jacque
 
-Also I'm a vtuber, maybe check out my streams sometime.
-- https://www.youtube.com/@StreamingHanako
-
-# 
 My discord @ is nobodyone but I won't accept friend requests without getting to know you first.
+# 
+
+![the](https://media.discordapp.net/attachments/649060645249089560/1306895937402175498/Untitled76_20241115003724.png?ex=674b72f0&is=674a2170&hm=be22605b1c42e3eccdce6381d32c4efdeb28dbe91029a8aab542809f9599104d&=&format=webp&quality=lossless&width=625&height=625)
+
+My vtuber persona, Hanako
+- https://twitch.tv/streaminghanako
+- https://www.youtube.com/@StreamingHanako
+- https://bsky.app/profile/hanakovtuber.bsky.social
+
