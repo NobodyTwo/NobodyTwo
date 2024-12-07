@@ -34,7 +34,7 @@ My discord @ is nobodyone but I won't accept friend requests without getting to 
 [Fang tutorial cause people keep asking](https://github.com/NobodyTwo/Fang-Tutorial/blob/main/README.md)
 
 #
-![the](https://media.discordapp.net/attachments/649060645249089560/1306895937402175498/Untitled76_20241115003724.png?ex=674b72f0&is=674a2170&hm=be22605b1c42e3eccdce6381d32c4efdeb28dbe91029a8aab542809f9599104d&=&format=webp&quality=lossless&width=625&height=625)
+![the](https://media.discordapp.net/attachments/649060645249089560/1306895937402175498/Untitled76_20241115003724.png?ex=67555630&is=675404b0&hm=0265fe80050586eb0af450f3668e8c37f71ae942aff002ff99c7b01923958092&=&format=webp&quality=lossless&width=625&height=625)
 
 My vtuber persona, Hanako
 - https://twitch.tv/streaminghanako
