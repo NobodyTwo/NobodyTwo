@@ -27,6 +27,7 @@ A bit of a freak. Very autistic.
 I block people if they annoy me.
 </p>
 
+[Super cool new strawpage!!!](https://nobodyone.straw.page)
   
 [Fang tutorial cause people keep asking](https://github.com/NobodyTwo/Fang-Tutorial/blob/main/README.md)
 #
