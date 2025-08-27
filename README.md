@@ -47,6 +47,12 @@ I block people if they annoy me.
 Other info on my [rentry](https://rentry.co/NobodyOnePT) and [pronouns page](https://en.pronouns.page/@Jacque)
 #
 
+> ## PSA
+> THIS IS NOT ME!!!!! I'D POINT OUT THE DIFFERENCES BUT THERE'S A CHANCE THEY'D SEE THIS AND THEN FIX IT
+> <img width="205" height="212" alt="image" src="https://github.com/user-attachments/assets/84844858-e44d-472a-bfa9-2d8e827c532c" /> <img width="144" height="177" alt="image" src="https://github.com/user-attachments/assets/8c93c269-487f-4e62-9d2b-fa983e06c26c" />
+> 
+> But basically!!! My pony is better (because it's original and not some loser's copy)
+
 <p align="right">
   <img src="https://github.com/user-attachments/assets/1a71d953-e448-43e0-86f8-bd4729439ae9" alt="HanakoHeartEmote" style="width:30%; height:auto;">
 </p>
