@@ -53,17 +53,14 @@ Other info on my [rentry](https://rentry.co/NobodyOnePT) and [pronouns page](htt
 > 
 > But basically!!! My pony is better (because it's original and not some loser's copy)
 
-<p align="right">
-  <img src="https://github.com/user-attachments/assets/1a71d953-e448-43e0-86f8-bd4729439ae9" alt="HanakoHeartEmote" style="width:30%; height:auto;">
-</p>
 
-  ### <p align="right"> My vtuber persona, Hanako
+  ### <p align="right"> Guys I'm a vtuber!!
 <p align="right">
-https://twitch.tv/streaminghanako<img src="https://github.com/user-attachments/assets/65405c9d-8dd2-4c1a-89c7-ebb1076e0e82" alt="Twitch Logo" style="width:3%; height:auto;">
+https://twitch.tv/ghoulfoolery<img src="https://github.com/user-attachments/assets/65405c9d-8dd2-4c1a-89c7-ebb1076e0e82" alt="Twitch Logo" style="width:3%; height:auto;">
 
 <p align="right">
-https://www.youtube.com/@StreamingHanako <img src="https://github.com/user-attachments/assets/ddd8ed1e-911a-4caa-848e-d7878dfd692f" alt="YouTube Logo" style="width:3%; height:auto;">
+https://www.youtube.com/@GhoulFoolery <img src="https://github.com/user-attachments/assets/ddd8ed1e-911a-4caa-848e-d7878dfd692f" alt="YouTube Logo" style="width:3%; height:auto;">
 
 <p align="right">
-https://bsky.app/profile/hanakovtuber.bsky.social <img src="https://github.com/user-attachments/assets/3ea9fbfb-5921-429a-8a39-9588b23e6325" alt="Bluesky Logo" style="width:3%; height:auto;">
+https://bsky.app/profile/@ghoulfoolery.bsky.social <img src="https://github.com/user-attachments/assets/3ea9fbfb-5921-429a-8a39-9588b23e6325" alt="Bluesky Logo" style="width:3%; height:auto;">
 
