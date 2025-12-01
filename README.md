@@ -41,6 +41,7 @@ I block people if they annoy me.
 > * Those weirdos who try to have pony sex
 > * Vivziepop media ponies (I'll hide if you linger nearby for too long)
 > * Yarichin ponies (I block on sight)
+> * DMMD fans (I usually block on sight unless you're friends with one of my friends)
 > * MHA fans (unless we're already oomfs)
 > * Genital/NSFW ponies
 
