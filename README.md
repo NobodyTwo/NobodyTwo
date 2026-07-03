@@ -20,7 +20,7 @@ Here are some ideas to get you started:
 </p>
 
 <p align="center">
-Jacque, They/Them
+Jacque/Ghoul, They/Them
 <p align="center">
 A bit of a freak. Very autistic.
 <p align="center">
