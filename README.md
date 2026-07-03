@@ -45,7 +45,7 @@ I block people if they annoy me.
 > * MHA fans (unless we're already oomfs)
 > * Genital/NSFW ponies
 
-Other info on my [rentry](https://rentry.co/NobodyOnePT) and [pronouns page](https://en.pronouns.page/@Jacque)
+Other info on my [pronouns page](https://en.pronouns.page/@Jacque)
 #
 
   ### <p align="right"> Guys I'm a vtuber!!
