@@ -25,6 +25,8 @@ Jacque/Ghoul, They/Them
 A bit of a freak. Very autistic.
 <p align="center">
 I block people if they annoy me.
+<p align="center">
+I don't like roleplaying and will only add people if I hang out with them and like their vibe. I'm not great at tone and have severe anxiety but I enjoy sitting with people who don't put pressure on me.   
 </p>
 
 [Super cool strawpage!!!](https://nobodyone.straw.page)
