@@ -26,7 +26,9 @@ A bit of a freak. Very autistic.
 <p align="center">
 I block people if they annoy me.
 <p align="center">
-I don't like roleplaying and will only add people if I hang out with them and like their vibe. I'm not great at tone and have severe anxiety but I enjoy sitting with people who don't put pressure on me.   
+I don't like roleplaying and will only add people if I hang out with them and like their vibe. I'm not great at tone and have severe anxiety but I enjoy sitting with people who don't put pressure on me.
+<p align="center">
+I'm almost always in the 18+ server. If I'm on safe server it's because I'm hanging out with my little sibling. I won't be adding any kids as friends but you're free to talk to me if my sibling is interacting with you.
 </p>
 
 [Super cool strawpage!!!](https://nobodyone.straw.page)
