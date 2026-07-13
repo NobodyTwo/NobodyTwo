@@ -38,7 +38,7 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I'm hang
 
 > ## DNI
 > * Bigots - Homophobic/transphobic/racist/etc
-> * Minors - You get a pass if I already know you, but I really don't want to be making friends with kids (I live in the 18+ server anyway so I don't know why y'all are here)
+> * Minors on 18+ gtfo you shouldn't be here
 > * Proshippers - Yes, this includes adopted siblings
 > * People who don't like cats
 > * People who copy ponies without permission
@@ -48,6 +48,7 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I'm hang
 > * DMMD fans (I usually block on sight unless you're friends with one of my friends)
 > * MHA fans (unless we're already oomfs)
 > * Genital/NSFW ponies
+> * Ren/jokerofwildcards and their friends
 
 Other info on my [pronouns page](https://en.pronouns.page/@Jacque)
 #
