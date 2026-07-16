@@ -40,17 +40,14 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I'm hang
 > * Bigots - Homophobic/transphobic/racist/etc
 > * Minors on 18+ gtfo you shouldn't be here
 > * Proshippers - Yes, this includes adopted siblings
-> * People who don't like cats
-> * People who copy ponies without permission
-> * Those weirdos who try to have pony sex
+> * People who don't like cats (this sounds silly but I have trauma)
 > * Vivziepop media ponies (I'll hide if you linger nearby for too long)
 > * Yarichin ponies (I block on sight)
 > * DMMD fans (I usually block on sight unless you're friends with one of my friends)
-> * MHA fans (unless we're already oomfs)
-> * Genital/NSFW ponies
+> * MHA fans (unless we're already friends)
+> * Genital/NSFW ponies/pony sex weirdos
 > * Ren/jokerofwildcards and their friends
 
-Other info on my [pronouns page](https://en.pronouns.page/@Jacque)
 #
 
   ### <p align="right"> Guys I'm a vtuber!!
