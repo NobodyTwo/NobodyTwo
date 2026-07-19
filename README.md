@@ -36,6 +36,17 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I'm hang
 [Fang tutorial cause people keep asking](https://github.com/NobodyTwo/Fang-Tutorial/blob/main/README.md)
 #
 
+> ## Current Interests
+> * Sky: Children of the Light
+> * BFB/Tpot
+> * Stardew Valley
+> ## Other Interests
+> * Shows: JoJo's Bizarre Adventure, Demon Slayer, Dungeon Meshi, Frieren, The Amazing Digital Circus, The Apothecary Diaries, Bungou Stray Dogs, Witch Hat Atelier, My Dress-Up Darling, Lucky Star, Horimiya, Spy x Family, Oshi no Ko, Black Clover <br>+ a lot more but I only wanted to type some notable ones
+> 
+> * Games: Genshin Impact, Neverness to Everness, Honkai: Star Rail, Regretevator, Wobbledogs, Cookie Run: Kingdom, Date Everything, Among Us, Ultrakill, Ensemble Stars <br> - I'm a pretty casual gamer for the most part so please don't expect me to know everything about everything I play thanks
+> * Other things I like: Cats, knitting, clowns, vtubers, making music, sometimes drawing
+#
+
 > ## DNI
 > * Bigots - Homophobic/transphobic/racist/etc
 > * Minors on 18+ gtfo you shouldn't be here
@@ -46,6 +57,7 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I'm hang
 > * DMMD fans (I usually block on sight unless you're friends with one of my friends)
 > * MHA fans (unless we're already friends)
 > * Genital/NSFW ponies/pony sex weirdos
+> * Anyone who unironically says no doubles about kinning/liking a popular character
 > * Ren/jokerofwildcards and their friends
 
 #
